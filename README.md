@@ -15,10 +15,11 @@
 
 ---
 ## 🎉 Fun Facts About Me
-- 🌸 Sometimes overthinker, sometimes random  
+- 🐣 Sometimes overthinker, sometimes random 
 - 🎶 Can sing soprano & alto (depends on the vibe 🎤)  
-- 🤓 INTP-T, but secretly also vibes like INFJ    
-- 💡 Believe that tech should help people, not replace people
+- 🤓 INTP-T
+- 📚 Fan of YLAB comics
+- 💡 Believe that tech should help people, not replace them
 ---
 
 ## 📫 Let’s Connect!
