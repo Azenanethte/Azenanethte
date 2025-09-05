@@ -18,7 +18,7 @@
 - 🌸 Sometimes overthinker, sometimes random  
 - 🎶 Can sing soprano & alto (depends on the vibe 🎤)  
 - 🤓 INTP-T, but secretly also vibes like INFJ    
-- 💡 Believe that tech should help, not replace, people
+- 💡 Believe that tech should help people, not replace people
 ---
 
 ## 📫 Let’s Connect!
